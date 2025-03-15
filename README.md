@@ -2,7 +2,7 @@
 - 👀 I’m interested in EVERYTHING. From technical advancement to Software-Hardware integration.
 - 🌱 I’m currently completing my Senior Secondary Schooling.
 - 💞️ I’m looking to collaborate on team projects, including #python, #MySQL, #html, #etc.
-- 📫 How to reach me? Here's the ways:- https://t.me/knownuserone & email address-shivangayush161161@gmail.com
+- 📫 How to reach me? Here's the ways:- https://t.me/knownuserone & shivangayush161161@gmail.com
 - 😄 Pronouns: he/his
 - ⚡ Fun fact: I'm CURIOUS!
 
